@@ -49,9 +49,8 @@ Aplico mis conocimientos técnicos en el análisis y gestión de inversiones, co
 
 Puedes contactarme en [LinkedIn](https://www.linkedin.com/in/mat%C3%ADas-cazanave/) para más información o colaboraciones.
 
----
 
-¡Gracias por visitar mi perfil!
+### ¡Gracias por visitar mi perfil!
 
 
 -------------------------------
@@ -107,6 +106,5 @@ I apply my technical knowledge to investment analysis and management, combining 
 
 You can contact me on [LinkedIn](https://www.linkedin.com/in/mat%C3%ADas-cazanave/) for more information or collaborations.
 
----
 
-Thank you for visiting my profile!
+### Thank you for visiting my profile!
